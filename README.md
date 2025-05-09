@@ -1,4 +1,4 @@
-# Privacy Policy for Tag App
+# Contact Us
 
 Need to get in touch? Support for users can be found at the following channels:
 
